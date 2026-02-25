@@ -1,1 +1,2 @@
-#tes bryan
+#
+Boneka Ambalabu adalah hasil editan kreatif yang menggabungkan elemen wajah manusia dengan tubuh boneka Labubu. Nama "Ambalabu" sendiri merupakan plesetan dari kata "Labubu" yang digabungkan dengan istilah atau nama lain yang dianggap sesuai dengan konteks meme, yaitu Ambatukam.
